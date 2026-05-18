@@ -1,3 +1,5 @@
+**[](https://codimd.dev.kube.insee.fr/zXyJCGoMQHuLQzDlqWwoHA?both#)**
+
 Présentation
 Entrez dans l'univers de la grande école publique dédiée à la formation, aux métiers et à la recherche dans le domaine du jeu vidéo et des médias interactifs numériques !
 
