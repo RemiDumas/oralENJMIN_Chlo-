@@ -1,5 +1,9 @@
 ## Questions pour l'oral
+### En ligne
 **[https://codimd.dev.kube.insee.fr/zXyJCGoMQHuLQzDlqWwoHA?both#](https://codimd.dev.kube.insee.fr/zXyJCGoMQHuLQzDlqWwoHA?both#)**
+
+### Version html
+**[https://codimd.dev.kube.insee.fr/s/ipBnR0lUf#](https://codimd.dev.kube.insee.fr/s/ipBnR0lUf#)**
 
 ## Présentation de l'école
 
